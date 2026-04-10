@@ -1,3 +1,3 @@
 # Libra-papers
 
-Meine Libra-Shell Wallpaper
+My Libra-Shell wallpaper (Only SouSou no Frieren duh)
